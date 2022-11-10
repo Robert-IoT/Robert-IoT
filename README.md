@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Robert-IoT
 - 👀 I’m interested in Stuff with blinky lights
-- 🌱 I’m currently learning to anny people more
+- 🌱 I’m currently learning to annoy people a little more
 - 💞️ I’m looking to collaborate on world domination
 - 📫 How to reach me mostly on a Cylon Base star
 
